@@ -1,17 +1,15 @@
 # Biblioteca com 345 apostilas
-
-
- 🗃️ Github
-https://github.com/Makerjunior
+Canal Mente Maker 
+👉 https://www.youtube.com/channel/UCdHR_M4vqK1rtKo56RMQ9tQ
+ 
+🪩 Discord
+https://discord.gg/NJgus32G
 
 📲 Instagram
 https://www.instagram.com/mente___maker/
 
 🌏 Plataforma
 http://www.mentemaker.com.br/
-
-🪩 Discord
-https://discord.gg/NJgus32G
 
 📱 WhatsApp
 https://chat.whatsapp.com/GsN1nFTGOpG5gX2n7sXBqR
