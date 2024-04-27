@@ -3,7 +3,7 @@ Canal Mente Maker
 👉 https://www.youtube.com/channel/UCdHR_M4vqK1rtKo56RMQ9tQ
  
 🪩 Discord
-https://discord.gg/NJgus32G
+https://discord.gg/s64cbsFJ
 
 📲 Instagram
 https://www.instagram.com/mente___maker/
